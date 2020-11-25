@@ -75,4 +75,25 @@ Pertanyaan-pertanyaan lain bisa kalian tanya ke gw lewat discord (`troke.id#0027
 | [Lastchild - Lagu Terakhir Untukmu](https://osu.ppy.sh/beatmapsets/605618) | [upan](https://osu.ppy.sh/users/5214397) |
 | [Upiak Isil - Tak Tun Tuang](https://osu.ppy.sh/beatmapsets/691814) | [Sarahkuai](https://osu.ppy.sh/users/5246861) |
 | [NTRL - Sakit Jiwa (Bukalapak Ver.)](https://osu.ppy.sh/beatmapsets/544306) | [dionz99](https://osu.ppy.sh/users/2545604) |
- 
+| [Hanatan - Insect of Love (Nightcore Ver.)](https://osu.ppy.sh/beatmapsets/914451#mania/1909965) | [lCharlotte](https://osu.ppy.sh/users/2303542) |
+| [siromaru + cranky - conflict](https://osu.ppy.sh/beatmapsets/1168387#mania/2437703) | [LuxSayaka](https://osu.ppy.sh/users/8382579) |
+| [Camellia as "Reverse of Riot" - Completeness Under Incompleteness](https://osu.ppy.sh/b/2419421) | [XDerbyX](https://osu.ppy.sh/users/7326238) |
+| [Team Grimoire vs Laur - Grievous Lady](https://osu.ppy.sh/beatmapsets/1144876#mania/2390290) | [XDerbyX](https://osu.ppy.sh/users/7326238) |
+| [Capchii - Candy Crisis!!](https://osu.ppy.sh/beatmapsets/1072751#mania/2245186) | [2ndlegend](https://osu.ppy.sh/users/7621604) |
+| [Various Artist - 10K Derby Pack (Alpha)](https://osu.ppy.sh/b/2425029) | [XDerbyX](https://osu.ppy.sh/users/7326238) |
+| [Sasaki Sayaka - Atlantico Blue](https://osu.ppy.sh/beatmapsets/1211515#mania/2539196) | [tentrempm](https://osu.ppy.sh/users/8346342) |
+| [Yuaru - Asu No Yozora Shoukaihan](https://osu.ppy.sh/b/1607727) | [MonikaFangirl](https://osu.ppy.sh/users/10665915) |
+| [bbn - Perpetual Trauma](https://osu.ppy.sh/b/1552402) | [VianK](https://osu.ppy.sh/users/6889055) |
+| [Ni-Sokkususu - Blade Dance (TV Size)](https://osu.ppy.sh/beatmapsets/875049#mania/1828758) | [Noob dan Bego](https://osu.ppy.sh/users/8877181) |
+| [Chopin Etude Op. 10 No. 4](https://osu.ppy.sh/b/1002694) | [vnlsk](https://osu.ppy.sh/users/8174401) |
+| [Yukinoshita Yukino (Saori Hayami) & Yuigahama Yui (Touyama Nao) - Diamond no Jundo](https://osu.ppy.sh/beatmapsets/1233719#mania/2564672) | [ChocoCoki-](https://osu.ppy.sh/users/3565870) |
+| [MisoilePunch - Aurolla](https://osu.ppy.sh/b/2568108) | [XDerbyX](https://osu.ppy.sh/users/7326238) |
+| [LunaticSounds - Dement -After Legend-](https://osu.ppy.sh/beatmapsets/1244566#mania/2587088) | [XDerbyX](https://osu.ppy.sh/users/7326238) |
+| [Kasandora - GIFT](https://osu.ppy.sh/b/2483482) | [ChocoCoki-](https://osu.ppy.sh/users/356587) |
+| [Various Artist - 10K Derby Pack (Bravo)](https://osu.ppy.sh/b/2576482) | [XDerbyX](https://osu.ppy.sh/users/7326238) |
+| [Team "Hanayamata" - Hana wa Odore ya Irohaniho](https://osu.ppy.sh/beatmapsets/194842#mania/465894) | [Rukaru](https://osu.ppy.sh/users/1501974) |
+| [MisoilePunch -Takenoko Soe- - Staring at Star](https://osu.ppy.sh/beatmapsets/1128265#mania/2357241) | [XDerbyX](https://osu.ppy.sh/users/7326238) |
+| [Yukinoshita Yukino (CV.Hayami Saori) & Yuigahama Yui - Everyday World](https://osu.ppy.sh/beatmapsets/1093919#mania/2286226) | [Hassou Tobii](https://osu.ppy.sh/users/2940660) |
+| [KASAI HARCORES - Cycle Hit](https://osu.ppy.sh/beatmapsets/1048524#mania/2191602) | [[KonG-69]](https://osu.ppy.sh/users/8847412) |
+| [AAAA - Hoshi o Kakeru Adventure ~ we are forever friends! [Long ver.]](https://osu.ppy.sh/b/2196626) | [Aishdoll-](https://osu.ppy.sh/users/7751704) |
+| [Kaneko Chiharu - -FALLEN-](https://osu.ppy.sh/b/2183281) | [[KonG-69]](https://osu.ppy.sh/users/8847412) |
